@@ -1,0 +1,1 @@
+# ZukunftDenken-investing-blog-website-N-SP-DE-III-
